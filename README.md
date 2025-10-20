@@ -1,0 +1,1 @@
+# Codealpha-Stock-market-and-trading-basics-task
